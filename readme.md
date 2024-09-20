@@ -1,1 +1,1 @@
-informnation
+information
